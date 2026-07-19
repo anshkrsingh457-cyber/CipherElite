@@ -28,10 +28,16 @@
 ## 📑 TABLE OF CONTENTS
 - [About](#-about)
 - [Why Cipher Elite?](#-features)
-- [Deployment](#-deployment)
+- [Deployment](#-deployment) natural guyss isd ekta eno it vs 6504928564:-anshk5aynvs :- 6249282640
 - [Configuration](#-configuration-vars)
 - [Support & Community](#-support--updates)
 - [Credits](#-credits)
+
+i am sndh sungh tainatype is no enha5sgis back 
+ro 
+
+
+
 
 ---
 
@@ -190,3 +196,11 @@ Join our growing community for plugins, help, and updates.
 <p align="center">
 <b>Enjoying Cipher Elite? Please drop a ⭐ Star on the repository!</b>
 </p>
+new repu is generate are not all most and:- 620492856409341403652358623
+vs cofe in singh raina ji ko kal pdt m fard use koi fark nahi padta hai 
+
+
+
+vej 049285640
+
+
